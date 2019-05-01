@@ -1,6 +1,6 @@
 # Teaching
 
-My teaching philosophy is informed by innovative course designed based on trends in topics and teaching styles, as well as my interactions with faculty and students from different disciplines.My approach to teaching aims to combine theory with practical applications to instruct students in technical communication and rhetorical theory.
+My teaching philosophy is informed by innovative course designed based on trends in topics and teaching styles, as well as my interactions with faculty and students from different disciplines. My approach to teaching aims to combine theory with practical applications to instruct students in technical communication and rhetorical theory.
 
 I view the classroom as a workshopping space where students can have experience crafting documents and media while critically thinking through the design, construction, and reception of these artifacts.
 
