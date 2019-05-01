@@ -10,3 +10,6 @@ If you'd like to follow my academic musings on twitter, my handle is @laura_r0be
 
 Below are my cats, Finny and Carrot. 
 
+![Finny](lerober4.github.io/IMG_20180115_161550447.jpg)
+
+![Carrot](https://github.com/lerober4/lerober4.github.io)
