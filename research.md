@@ -1,4 +1,4 @@
-#Research 
+# Research 
 
 In my research, I examine how discourses of openness influence internal scientific communication and knowledge-making processes.
 
