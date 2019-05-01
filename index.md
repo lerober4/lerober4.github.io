@@ -1,4 +1,4 @@
-# Welcome
+# Welcome!
 Hello, my name is Laura and welcome to my professional portfolio. 
 
 Browse the links below to find out more. 
