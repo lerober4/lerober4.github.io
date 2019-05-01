@@ -9,7 +9,11 @@ Read my [teaching statement](https://www.dropbox.com/s/cdynh5t77ce5hv1/teachings
 View my [diversity statement](https://www.dropbox.com/s/385nh3e85kpw2gb/diversitystatement.pdf?dl=0) to see how I conceptualize diversity in and outside of the classroom.
 
 ## Courses Taught
-* COM/ENG 395: Popularizing Science with Digital Media, [Syllabus](https://www.dropbox.com/s/iv5zfl5v3s5wohl/Syllabus%20395%20-%20Spring%2019.pdf?dl=0)
+* COM/ENG 395: Popularizing Science with Digital Media
+..* [Syllabus](https://www.dropbox.com/s/iv5zfl5v3s5wohl/Syllabus%20395%20-%20Spring%2019.pdf?dl=0)
 * ENG 333: Communication for Science and Research
-* ENG 314: Technical Editing and Document Design, [Syllabus](https://www.dropbox.com/s/7c7pprmyj9lk3jw/English%20314_Spring%2019.pdf?dl=0) 
-* STS 214: Introduction to Science, Technology, and Society 
+* ENG 314: Technical Editing and Document Design
+..* [Syllabus](https://www.dropbox.com/s/7c7pprmyj9lk3jw/English%20314_Spring%2019.pdf?dl=0) 
+* STS 214: Introduction to Science, Technology, and Society
+..* [Schedule](https://www.dropbox.com/s/n08a1l6o1cv5iri/STS214%20Course%20Schedule.pdf?dl=0)
+..* [Course Slides](https://drive.google.com/drive/folders/0B7igqErxEEbWWHhubUtqMFpIR3c?usp=sharing)
