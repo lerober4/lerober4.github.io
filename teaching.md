@@ -4,7 +4,7 @@ My teaching philosophy is informed by innovative course designed based on trends
 
 I view the classroom as a workshopping space where students can have experience crafting documents and media while critically thinking through the design, construction, and reception of these artifacts.
 
-Read my teaching philosophy to learn more about my pedagogy.
+Read my [teaching statement](lerober4.github.io/teachingstatement.pdf) to learn more about my pedagogy.
 
 ## Courses Taught
 * COM/ENG 395: Popularizing Science with Digital Media
