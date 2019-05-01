@@ -6,6 +6,8 @@ I view the classroom as a workshopping space where students can have experience 
 
 Read my [teaching statement](https://www.dropbox.com/s/cdynh5t77ce5hv1/teachingstatement.pdf?dl=0) to learn more about my pedagogy.
 
+View my [diversity statement](https://www.dropbox.com/s/385nh3e85kpw2gb/diversitystatement.pdf?dl=0) to see how I conceptualize diversity in and outside the classroom.
+
 ## Courses Taught
 * COM/ENG 395: Popularizing Science with Digital Media
 * ENG 333: Communication for Science and Research
