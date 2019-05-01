@@ -10,6 +10,6 @@ If you'd like to follow my academic musings on twitter, my handle is [@laura_r0b
 
 Below are my cats, Finny and Carrot. 
 
-![Finny](https://www.dropbox.com/s/buugxb0cx9k3x4g/finny.jpg?dl=0)
+![Finny](https://www.dropbox.com/s/dfbons9f7s5m3aq/finny.png?dl=0)
 
-![Carrot](https://www.dropbox.com/s/ymgenlnjalsegxj/carrot.jpg?dl=0)
+![Carrot](https://www.dropbox.com/s/c59akmq8qiod3ve/carrot.png?dl=0)
