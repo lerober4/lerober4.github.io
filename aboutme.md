@@ -8,8 +8,4 @@ When I'm not working on my dissertation, you can find me enjoying Raleigh's many
 
 Follow me on twitter [@laura_r0berts](https://twitter.com/laura_r0berts) or email me at lerober4@ncsu.edu.
 
-Below are my cats, Finny and Carrot. 
 
-![Finny](https://www.dropbox.com/s/dfbons9f7s5m3aq/finny.png)
-
-![Carrot](https://www.dropbox.com/s/c59akmq8qiod3ve/carrot.png)
