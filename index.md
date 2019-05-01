@@ -9,5 +9,5 @@ Browse the links below to find out more.
 
 ## [Teaching](lerober4.github.io/teaching)
 
-## [CV](lerober4.github.io/cv)
+## [CV](https://www.dropbox.com/s/9hwr6blgchw4z18/CV.LauraRoberts.3.12.pdf?dl=0)
 
