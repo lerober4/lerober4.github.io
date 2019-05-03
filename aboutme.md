@@ -1,6 +1,6 @@
 # Hi!
 
-I'm a humanist who theorizes about science and society. I enjoy playing with technology (old and new). 
+I'm a rhetorician who theorizes about science and society. I enjoy playing with technology (old and new). 
 
 I'm currently a PhD candidate in NCSU's Communication, Rhetoric, and Digital Media program. 
 
