@@ -4,7 +4,7 @@ My teaching philosophy is informed by innovative course design based on trends i
 
 I view the classroom as a workshopping space where students can have experience crafting documents and media while critically thinking through the design, construction, and reception of these artifacts.
 
-Read my [teaching statement](https://www.dropbox.com/s/cdynh5t77ce5hv1/teachingstatement.pdf?dl=0) to learn more about my pedagogy.
+Read my [teaching statement](https://www.dropbox.com/s/6q2xlqudop8upci/Laura%20Roberts_Teaching%20Philosophy.pdf?dl=0) to learn more about my pedagogy.
 
 View my [diversity statement](https://www.dropbox.com/s/385nh3e85kpw2gb/diversitystatement.pdf?dl=0) to see how I conceptualize diversity in and outside of the classroom.
 
