@@ -17,3 +17,5 @@ View my [diversity statement](https://www.dropbox.com/s/aenc7wwtointhp7/Laura%20
   * [Schedule](https://www.dropbox.com/s/n08a1l6o1cv5iri/STS214%20Course%20Schedule.pdf?dl=0)
   * [Course Slides](https://drive.google.com/drive/folders/0B7igqErxEEbWWHhubUtqMFpIR3c?usp=sharing)
 * ENG 333: Communication for Science and Research
+  * [Syllabus](https://www.dropbox.com/s/vzz9lzdmkarfflg/English%20333%20Syllabus.pdf?dl=0) 
+  * [Schedule](https://www.dropbox.com/s/p0cylgm22fdsec1/ENG%20333%20Sum%202%20Schedule.pdf?dl=0)
