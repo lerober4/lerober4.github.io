@@ -6,7 +6,7 @@ I view the classroom as a workshopping space where students can have experience 
 
 Read my [teaching statement](https://www.dropbox.com/s/6q2xlqudop8upci/Laura%20Roberts_Teaching%20Philosophy.pdf?dl=0) to learn more about my pedagogy.
 
-View my [diversity statement](https://www.dropbox.com/s/385nh3e85kpw2gb/diversitystatement.pdf?dl=0) to see how I conceptualize diversity in and outside of the classroom.
+View my [diversity statement](https://www.dropbox.com/s/aenc7wwtointhp7/Laura%20Roberts_Diversity%20Statement.pdf?dl=0) to see how I conceptualize diversity in and outside of the classroom.
 
 ## Courses Taught
 * COM/ENG 395: Popularizing Science with Digital Media
