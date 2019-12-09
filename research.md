@@ -9,7 +9,7 @@ My research areas include the following:
 * technical communication
 * scientific writing
 
-View my [research statement](https://www.dropbox.com/s/00bxyxc4xrmd0bq/researchstatement.pdf?dl=0) for more information about how I approach research. 
+View my [research statement](https://www.dropbox.com/s/kk7t5rk5ytv19n6/Laura%20Roberts_Research%20Statement.pdf?dl=0) for more information about how I approach research. 
 
 ## Recent Publications 
 
