@@ -10,7 +10,7 @@ View my [diversity statement](https://www.dropbox.com/s/aenc7wwtointhp7/Laura%20
 
 ## Courses Taught
 * COM/ENG 395: Popularizing Science with Digital Media
-  * [Syllabus](https://www.dropbox.com/s/iv5zfl5v3s5wohl/Syllabus%20395%20-%20Spring%2019.pdf?dl=0)
+  * [Syllabus](https://www.dropbox.com/s/0xipra1zldkzha3/Syllabus%20395%20-%20Spring%2019.pdf?dl=0)
 * ENG 314: Technical Editing and Document Design
   * [Syllabus](https://www.dropbox.com/s/7c7pprmyj9lk3jw/English%20314_Spring%2019.pdf?dl=0) 
 * STS 214: Introduction to Science, Technology, and Society
